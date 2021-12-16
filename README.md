@@ -1,4 +1,4 @@
-Bem vinado ao meu perfil! Me chamo Donizete gomes e atuo no momento como Analista desenvolvedor de sistemas!!
+Bem vindos ao meu perfil! Me chamo Donizete Gomes e atuo no momento como Analista desenvolvedor de sistemas!!
 
 Meus projetos são privados, no entanto posso estar passando o link de alguns deles para que vocês acessem!
 
